@@ -4,7 +4,7 @@
 
 ---
 
-**Software Engineer, Cybersecurity Analyst**
+**Software Engineer, Data Analyst**
 
 ---
 
